@@ -1,7 +1,5 @@
-# Novo Horizonte
-
 Portuguese Digital Real Estate
 
 Dinis Rosas
-[dinisrosas@gmail.com](tel:dinisrosas@gmail.com)
 
+[dinisrosas@gmail.com](tel:dinisrosas@gmail.com)
